@@ -1,1 +1,1 @@
-# If you are heare just ignore this readme
+# If you are here just ignore this readme
